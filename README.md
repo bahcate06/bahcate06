@@ -56,6 +56,16 @@ Whether you want to:
 
 🧵 **Threads**: [@bahcate_dev](https://www.threads.com/@bahcate_dev) — Follow my anonymous quacks and project updates!
 
+## Thanks To
+
+<p align="center">
+  <img src="aaa.png" width="150" alt="my little fox"/>
+</p>
+
+<p align="center">
+  <i>None of this would be possible without my beautiful little fox. Thank you, my dear! 🦊💛</i>
+</p>
+
 ---
 
 <p align="center">
